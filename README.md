@@ -1,4 +1,4 @@
--  I’m currently working on: PCBs and the STRIX Robotics team website<br>-  I’m currently learning: A lot<br>-  Ask me about: Music and movies<br>-  How to reach me: Discord (JKFUNKO)<br>-  Pronouns: She/Her<br>-  Fun fact: I like sharks<br>
+-  I’m currently working on: Projects for my college class <br>-  I’m currently learning: A lot<br>-  Ask me about: Music, movies, and photography <br>-  How to reach me: Discord (JKFUNKO) <br>-  Pronouns: She/Her <br>-  Fun fact: I like sharks<br>
 
 
 ## 🌐 Socials:
