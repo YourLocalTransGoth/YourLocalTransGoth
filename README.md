@@ -1,5 +1,5 @@
 # About Me:
-I’m currently working on: Projects for my college class<br>Contact me: Discord (jkfunko) or (jade.kuehnel2008@gmail.com)<br>Ask me about: Music, movies, and photography<br>Pronouns: She/her <br>Fun fact: I like sharks
+I’m currently working on: Projects for my college class<br>Contact me: Discord (jkfunko) or email (jade.kuehnel2008@gmail.com)<br>Ask me about: Music, movies, and photography<br>Pronouns: She/her <br>Fun fact: I like sharks
 
 
 ## Socials:
